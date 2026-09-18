@@ -1,1 +1,0 @@
-# Terms-Privacy-for-Cortex
